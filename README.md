@@ -1,1 +1,5 @@
 # Codeclause_Landing_Page
+
+WEB DEVELOPMENT INTERNSHIP
+
+NAME: SANIKA KURKURE
